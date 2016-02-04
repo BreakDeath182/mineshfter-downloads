@@ -1,0 +1,20 @@
+# What's Minecraft? #
+
+  * **Minecraft is a game about placing blocks to build anything you can imagine. At night monsters come out, make sure to build a shelter before that happens.**
+
+
+# Details #
+
+Minecraft info:
+> These are some of the sites!
+  * http://www.minecraft.net/
+  * http://www.minecraft.net/community.jsp
+  * http://notch.tumblr.com/
+  * http://minecraftwiki.net/
+  * http://minecraftforum.net/index.php
+And this link is to make your own skin!
+  * www.minersneedcoolshoes.com/
+And this link leads you to Mineshafter!
+  * http://mineshafter.appspot.com/
+More will be updated!
+:)

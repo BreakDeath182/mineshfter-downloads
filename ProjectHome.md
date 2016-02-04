@@ -1,0 +1,1 @@
+Mineshafter is free for all!
